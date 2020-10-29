@@ -1,2 +1,8 @@
-# Coursera-Test-2
-Learning how to code
+## Welcome to Tendie Pages/// Also Know as "I will tell you why I didn't Cum."
+Chicken Tenders.... God I love Mike "Cuden" Le , Rodildo "Dolfs" Tendinava , Bradley "Bruds" Holhorse and and that Mish girl..
+# Dirty Socks, Hooded Nose Figure
+The hooded dwarf led the strange noseman into his apartment. It had been years since the strange noseman was able to rest peacefully. He had spent most of his life worshipping heroes of the middle lane and hoping to achieve as much success as them. This year he managed to deceive the man child Wendel and he was sent to the forefront of China. After many gruelling hours, he did not manage to make any progress whatsoever. He returned home broken and empty handed. The news from Riot Games OCE came as a shock to everyone. When one Discord server closes another opens. The strange noseman took this opportunity to latch onto those who were most vulnerable. His previous hero, Jan Waldner. When the apartment door opened, the strange noseman was horrifed. The apartment was filthy. Littered everywhere on the floor were dirty socks, used condoms, panties, tampons, and all sorts of rubbish. In the kitchen was a chubby teenager wearing expensive luxury clothes. Contrary to her appearance, she was cooking arduously. Her hands full of blisters from the endless cooking. The hooded dwarf offered the strange noseman some milk. "Better than the stuff you can get in stores" exclaimed the dwarf. The noseman drank it without hesitation because he thought this was the secret to becoming the best player. After finshing the milk, he noticed in one of the bedrooms a mature woman getting milk extracted from her breasts by a large machine. Before he could confront the dwarf, an old hag appeared from the toilets and her face lit up at the sight of the noseman. "Oh Reechard, you mak new frend?" The dwarf smirked. He had found a new victim to feed his ego. 
+![image](https://i.imgur.com/96WsfaYh.jpg) ![image](https://i.imgur.com/ZpMaQ0h.jpg)
+# Wet Ass Pussyyyyy
+I love that Michelle person o.o?
+
